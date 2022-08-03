@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+My favourite manhwas
+* Bastard
+* Solo Leveling
+* The Horizon
